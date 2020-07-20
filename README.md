@@ -1,1 +1,0 @@
-# GalX.github.io
